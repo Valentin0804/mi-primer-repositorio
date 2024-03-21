@@ -1,0 +1,1 @@
+ Tengo la expectativa de aprender sobre un lenguaje ampliamente utilizado en todo, y crear un proyecto final que sea servible. 
